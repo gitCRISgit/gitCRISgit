@@ -15,7 +15,7 @@
 					
 					🌱product development, 
 						
-						🌱creditcard fraud involving animals with hats
+						🌱creditcard fraud involving non-naked animals with hats and/or fake mustages
 - 💞️  I’m currently learning butt hacking and butt cracking
 - 📫 How to reach me gitcrisgit@sync-different. NÄT
 <!---
